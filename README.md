@@ -1,0 +1,6 @@
+- 👋 Hi, I’m  Kacper Cisek
+- 👀 I’m interested in learing shitty things
+- 🌱 I’m currently sitting in class room 
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
